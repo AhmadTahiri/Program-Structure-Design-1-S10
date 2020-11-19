@@ -2,5 +2,4 @@
  
  By Ahmad Tahiri  @ KPU
  
- Student #: 100356133
  
